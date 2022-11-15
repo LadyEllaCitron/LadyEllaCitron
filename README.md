@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LadyEllaCitron - A.M. Morning Rose
+- 👀 I’m interested in collaborative development
+- 🌱 I am currently learning website management
+- 💞️ I’m looking to collaborate on building segments, music integration and proper merchandising
+- 📫 How to reach me: @LadyEllaCitron on Instagram & Twitter, partnership@inclusiveindica.com
+- 🌐 Website: InclusiveIndica.com
